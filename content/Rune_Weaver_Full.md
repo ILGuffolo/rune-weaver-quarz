@@ -57,11 +57,9 @@ she heard some chuckling in the back as the poor victim quickly grabbed his stuf
 "Hmph" she scoffed. But her lips ever so slightly curved upwards.
 "Learn from the best".
 
-
 ---
 
 # Chapter 1 - I touch the shimmer
-
 
 The woods behind Riverside High were not particularly impressive.
 
@@ -307,7 +305,7 @@ She made it through the night; She would neve admit it, but she felt proud.
 
 The next morning brought better luck.
 
-She found a stream eventually, because she was listening for it, and because the basic logic of _water flows somewhere_ was the one piece of survival knowledge she had retained from that camping trip in seventh grade where she'd spent most of the weekend chatting.
+She found a stream eventually, because she was listening for it, and because the basic logic of _water flows somewhere_ was the one piece of survival knowledge she had retained from that camping trip in seventh grade where she'd spent most of the weekend chatting.
 
 She drank. The water tasted normal. "Finally, something that makes sense".
 
@@ -381,7 +379,7 @@ The hunters introduced themselves, though their names were difficult to pronounc
 
 now that she could take a look at them she noticed some details about them;
 
-The man, Braek was broad through the chest, dark-haired, carrying a bow that was clearly handmade. The woman, Selia, instead was shorter, quick in her movements, more graceful. it was her who cooked the *boar? dog? whatever it was* and with expert hand packed the rest with carefully selected leaves.
+The man, Braek was broad through the chest, dark-haired, carrying a bow that was clearly handmade. The woman, Selia, instead was shorter, quick in her movements, more graceful. it was her who cooked the _boar? dog? whatever it was_ and with expert hand packed the rest with carefully selected leaves.
 
 Communication was awkward.
 
@@ -489,45 +487,15 @@ And that made all the difference.
 
 # Chapter 3 - Strangers try to sell me
 
-From up close the city was much more lively than expected, peoples of every kind walked in and out of the huge wooden gates constantly. Carts, merchants, families all walked uncaring of them.
-Selia gestured something she didn't catch and started walking in the crowd. after the gate the view opened up again, revealing a dusty dirt road with simple wooden houses on each side and merchants selling food and trinkets she only saw in videogames.
-"Wow..." 
-Only then mila noticed both hunters looking at each other with worried looks, then after they briefly exchanged some words, they gestured Mila to follow them and started going deep into the city.
+From up close the city was much more lively than expected, peoples of every kind walked in and out of the huge wooden gates constantly. Carts, merchants, families all walked uncaring of them. Selia gestured something she didn't catch and started walking in the crowd. after the gate the view opened up again, revealing a dusty dirt road with simple wooden houses on each side and merchants selling food and trinkets she only saw in videogames. "Wow..." Only then mila noticed both hunters looking at each other with worried looks, then after they briefly exchanged some words, they gestured Mila to follow them and started going deep into the city.
 
-In the beginning Mila was a bit worried they would leave her at the gate of the city but it seemed they were kin with keeping her with them.
-"Oh, gods. Lets hope there are no _slaves_ here," Mila thought to herself and suddenly everything didn't seem so bright and cheerful anymore.
-she started frantically looking around to figure out a way of escaping in case things went south, but Selia always watched her close.
-being so immersed in her own thoughts she jumped and instinctively covered her face when suddenly Braek held something in front of her
-"Phew... It's only food... for a moment i thought..." said mila still panting from the jump scare
-"Thank you" she gestured to both of the hunters, who chuckled and said something she didn't understand.
-_"It still doesn't leave the slave option out of the table, but at least they wont let me die of hunger"_.
+In the beginning Mila was a bit worried they would leave her at the gate of the city but it seemed they were kin with keeping her with them. "Oh, gods. Lets hope there are no _slaves_ here," Mila thought to herself and suddenly everything didn't seem so bright and cheerful anymore. she started frantically looking around to figure out a way of escaping in case things went south, but Selia always watched her close. being so immersed in her own thoughts she jumped and instinctively covered her face when suddenly Braek held something in front of her "Phew... It's only food... for a moment i thought..." said mila still panting from the jump scare "Thank you" she gestured to both of the hunters, who chuckled and said something she didn't understand. _"It still doesn't leave the slave option out of the table, but at least they wont let me die of hunger"_.
 
-after a while longer and a Heated discussion with the merchant that bough almost of the hunters game, they turned another corner and at the and of the road came into view a single stone house, slightly bigger that the others and made in stone instead than wood, Mila supposed it was the city hall, "or whatever they have here".
-The hunters exchanged another worried look and head straight for the stone building. There they knocked on the door and entered holding the door open for Mila to squeeze trough.
-The waiting room was very different from what Mila expected, a crude desk on the right with a stern looking woman reading trough paperwork greeted them without even lifting her eyes.
-the rest of the room was empty apart from a crude bench made from a single log where the hunters sat down.
+after a while longer and a Heated discussion with the merchant that bough almost of the hunters game, they turned another corner and at the and of the road came into view a single stone house, slightly bigger that the others and made in stone instead than wood, Mila supposed it was the city hall, "or whatever they have here". The hunters exchanged another worried look and head straight for the stone building. There they knocked on the door and entered holding the door open for Mila to squeeze trough. The waiting room was very different from what Mila expected, a crude desk on the right with a stern looking woman reading trough paperwork greeted them without even lifting her eyes. the rest of the room was empty apart from a crude bench made from a single log where the hunters sat down.
 
-"Are they try to make my slave contract official? Are they adopting me? God, what the fuck is happening right now" Mila didn't know what to think.
-then suddenly the woman put down her papers and started saying something to Selia who promptly stood up and started talking with the secretary, soon also Break joined in and Mila was left there listening and trying to make sense of what they where saying, failing.
-after what seemed hours, the secretary took out a purple, diamond looking, crystal. witch she held to her mouth and said something, Then all went silent.
-after another long while another person came in trough the door. it was a young looking man, about in his 40's that looked like if Indiana Jones had took a job as a postman.
-Mila smiled under her nose, at the sight of that person that looked so out of place.
-He looked around the room scanning every one present, then quickly asking a series of rapid question to the secretary, whom responded with a stern voice gesturing to Mila.
-"What? Me?" She said looking around confused.
-Luckily Selia chimed in saying something in an apologetic tone.
-"Ok, what is happening" sail Mila now scared. 
-The man froze for a split second, then knelt to meet Mila's eyes and spoke with a calm voice.
-"Sorry, i don't... i don't understand... like, anything" Mila said to the man while gesturing wildly
-The strange man made a warm smile and pointed at himself "Kael", then gestured to Mila.
-"i'm Mila" she said making slight sigh of relief.
-then the man, Kael apparently, ruffled in his bag and pulled out a scrap of paper and started scribbling something on it.
-"You... want me to come home with you?" Mila said trying to interpret the drawing Kael handed to her. She wasn't so sure the man understood what she said but he nodded enthusiastically, gut up and started talking to the secretary again.
-"This is humiliating" Mila thought, "I'm not a *baby*, you know?" 
+"Are they try to make my slave contract official? Are they adopting me? God, what the fuck is happening right now" Mila didn't know what to think. then suddenly the woman put down her papers and started saying something to Selia who promptly stood up and started talking with the secretary, soon also Break joined in and Mila was left there listening and trying to make sense of what they where saying, failing. after what seemed hours, the secretary took out a purple, diamond looking, crystal. witch she held to her mouth and said something, Then all went silent. after another long while another person came in trough the door. it was a young looking man, about in his 40's that looked like if Indiana Jones had took a job as a postman. Mila smiled under her nose, at the sight of that person that looked so out of place. He looked around the room scanning every one present, then quickly asking a series of rapid question to the secretary, whom responded with a stern voice gesturing to Mila. "What? Me?" She said looking around confused. Luckily Selia chimed in saying something in an apologetic tone. "Ok, what is happening" sail Mila now scared. The man froze for a split second, then knelt to meet Mila's eyes and spoke with a calm voice. "Sorry, i don't... i don't understand... like, anything" Mila said to the man while gesturing wildly The strange man made a warm smile and pointed at himself "Kael", then gestured to Mila. "i'm Mila" she said making slight sigh of relief. then the man, Kael apparently, ruffled in his bag and pulled out a scrap of paper and started scribbling something on it. "You... want me to come home with you?" Mila said trying to interpret the drawing Kael handed to her. She wasn't so sure the man understood what she said but he nodded enthusiastically, gut up and started talking to the secretary again. "This is humiliating" Mila thought, "I'm not a _baby_, you know?"
 
-"And here it goes again, into the unknown" Mila said to herself shrugging away all her insecurities as she followed Kael out of the stone building feeling the look of the two hunters on her neck.
-The trip wasn't long, they circled the city hall and skirted another wooden building almost as big, then entered a anonymous looking house that Kael opened with what looked like a keycard he pulled from his bag.
-The inside was smaller than what she'd thought mainly due to the enormous piles of packages, letters and what Mila supposed was paperwork.
-Kael said something else and gestured around the room, as if giving her a tour. Mila looked around again, taking in the mountains of boxes, letters, and papers that seemed to have colonized every available surface.
+"And here it goes again, into the unknown" Mila said to herself shrugging away all her insecurities as she followed Kael out of the stone building feeling the look of the two hunters on her neck. The trip wasn't long, they circled the city hall and skirted another wooden building almost as big, then entered a anonymous looking house that Kael opened with what looked like a keycard he pulled from his bag. The inside was smaller than what she'd thought mainly due to the enormous piles of packages, letters and what Mila supposed was paperwork. Kael said something else and gestured around the room, as if giving her a tour. Mila looked around again, taking in the mountains of boxes, letters, and papers that seemed to have colonized every available surface.
 
 "So... this is your place?"
 
@@ -557,11 +525,11 @@ She'd made it through the first night by pretending none of it was real. A tempo
 
 The theft, in retrospect, was embarrassingly easy.
 
-Kael had left a small leather pouch on the kitchen table—not even hidden, just *sitting there*, as if trust was something that existed in this world. Mila had watched him move to his desk, distracted by a purple crystal that arrived in a box earlier, and she'd simply... taken it.
+Kael had left a small leather pouch on the kitchen table—not even hidden, just _sitting there_, as if trust was something that existed in this world. Mila had watched him move to his desk, distracted by a purple crystal that arrived in a box earlier, and she'd simply... taken it.
 
-A pulse of something electric ran through her. *Actually doing this*.
+A pulse of something electric ran through her. _Actually doing this_.
 
-The pouch felt light, whatever was inside making soft metallic sounds. She'd jammed it into her pocket. And waited for him to notice, to shout, to do something, _Anything_ 
+The pouch felt light, whatever was inside making soft metallic sounds. She'd jammed it into her pocket. And waited for him to notice, to shout, to do something, _Anything_
 
 Kael noticed at dinner.
 
@@ -569,11 +537,11 @@ He was standing over a pot of something that smelled like herbs and boiled veget
 
 He turned around to face her.
 
-Mila straightened her spine, fingers curled into fists in her lap. *Let's see what you do*.
+Mila straightened her spine, fingers curled into fists in her lap. _Let's see what you do_.
 
 He said something short in his language—the tone was sharp but not shouting—and pointed at her.
 
-"Don't know what you're saying," Mila called back, matching his edge with her own. She lifted her chin. With the _"So what"_ face she spent hours refining back in the principal office at Riverside
+"Don't know what you're saying," Mila called back, matching his edge with her own. She lifted her chin. With the _"So what"_ face she spent hours refining back in the principal office at Riverside
 
 He pointed directly at her pocket.
 
@@ -581,15 +549,15 @@ Mila's jaw clenched.
 
 Fine. She was tired of pretending she cared about his stolen property anyway. She pulled out the pouch and tossed it onto the table between them.
 
-Kael caught it one-handed, quickly checked the contents and  didn't yell.
+Kael caught it one-handed, quickly checked the contents and didn't yell.
 
 Instead, he set it down carefully. He turned off the stove. He said something else, this time slower, each word distinct like he was speaking to a dumb child.
 
 "I. Don't. Understand. you," Mila said, each word equally spaced, equally mocking.
 
-He closed his eyes. Breathed in. 
+He closed his eyes. Breathed in.
 
-*For someone who's supposed to be my guardian, you're not very good at this*.
+_For someone who's supposed to be my guardian, you're not very good at this_.
 
 When he opened them again, he pulled out that horrible little notebook he'd used yesterday—the one with sketches instead of words—and started drawing. Quick, efficient lines. A small circle. A smaller circle inside. Then what might have been bars around it.
 
@@ -613,7 +581,7 @@ The escape attempt happened three days later.
 
 She'd mapped the house thoroughly by then. The door opened with a keycard Kael kept in his bag—she'd watched him use it multiple times. His bag sat on a shelf in his bedroom when he wasn't actively carrying it. The bedroom door was never locked.
 
-by than she understood subtlety was useless here. Kael noticed everything, eventually. So instead of sneaking—*god, this was stupid*—she just walked in while he was in his office, pulled out the keycard, and headed for the front door.
+by than she understood subtlety was useless here. Kael noticed everything, eventually. So instead of sneaking—_god, this was stupid_—she just walked in while he was in his office, pulled out the keycard, and headed for the front door.
 
 She made it to the threshold.
 
@@ -633,7 +601,7 @@ He said something short that sounded like a question.
 
 He gestured to the door, then swept his arm to encompass the whole street outside the small window beside it. Then he folded his arms and raised his eyebrows, waiting.
 
-*Go ahead, then*.
+_Go ahead, then_.
 
 "What do you mean, You said—"
 
@@ -641,7 +609,7 @@ He gestured again, more deliberately. The meaning was clear: the door was his, t
 
 "So you're letting me leave?"
 
-He stood there fo a second, considering. Then he gestured to her, then to the street, then held up one finger. *One*.
+He stood there fo a second, considering. Then he gestured to her, then to the street, then held up one finger. _One_.
 
 "One what?"
 
@@ -657,9 +625,9 @@ Mila stood at the door for another minute before she followed him, seething.
 
 She went outside for exactly three minutes the next morning.
 
-The street was narrow and crowded, early foot traffic heading toward what she assumed was the market district. Everyone was dressed in practical linen and dyed fabrics, and she drew stares immediately—her Earth clothes were too modern, too *obvious*.
+The street was narrow and crowded, early foot traffic heading toward what she assumed was the market district. Everyone was dressed in practical linen and dyed fabrics, and she drew stares immediately—her Earth clothes were too modern, too _obvious_.
 
-She stood on the threshold of Kael's house and watched people pass by, watched them eye her with curiosity or suspicion, the weight of the isolation hit her like a rock. 
+She stood on the threshold of Kael's house and watched people pass by, watched them eye her with curiosity or suspicion, the weight of the isolation hit her like a rock.
 
 Three minutes was more than enough.
 
@@ -675,13 +643,13 @@ She'd gotten to five and refused to continue.
 
 She didn't know which word had done it, but something she'd said made his eye twitch.
 
-He stood up too, and for a moment she thought *finally*, someone was going to react like a normal person. Anger. Offense. Something she could work with.
+He stood up too, and for a moment she thought _finally_, someone was going to react like a normal person. Anger. Offense. Something she could work with.
 
 Instead, he said something calmly, collected his papers, and walked to his office.
 
-"So you just leave? You just *give up*? That's not—UGHH" Mila screamed.
+"So you just leave? You just _give up_? That's not—UGHH" Mila screamed.
 
-She couldn't hold it in anymore. she wanted to just *Run away*, from this insane situation, from him, from everything
+She couldn't hold it in anymore. she wanted to just _Run away_, from this insane situation, from him, from everything
 
 Kael, on the threshold of his office, turned around looking concerned. he stepped towards her to intercept her.
 
@@ -693,11 +661,11 @@ It wasn't even a good hit—she'd aimed for his shoulder, to push him away—but
 
 He let go immediately.
 
-She waited for him to retaliate, to grab her harder, to do something else than just *walk away*
+She waited for him to retaliate, to grab her harder, to do something else than just _walk away_
 
 instead he just backed off with a stupid apologetic look on his face.
 
-Mila stormed in her *room*—a nook with a sofa some pillows and a paper divider that seemed out of an 40s movie.
+Mila stormed in her _room_—a nook with a sofa some pillows and a paper divider that seemed out of an 40s movie.
 
 That night, Kael left a piece of paper on the kitchen table.
 
@@ -711,4 +679,7 @@ By the time she went to bed, she'd learned to count to ten without sounding like
 
 "I'm getting back home" was the last thing she remembered before she fell into a weird dream where Connor was evil and wanted to destroy the world with a lollipop.
 
-testetstets
+---
+
+# Chapter 5 - I get my first paycheck
+
