@@ -1,9 +1,5 @@
 ---
-title: Rune weaver
+title: Rune Weaver
 ---
-Welcome to the official Rune Weaver novel site, i will regularly update it with the new chapters ecc...
 
-To read the novel click [[content/Rune_Weaver_Full|HERE]] or on "Rune_Weaver_Full" on the left.
-any feedback is appreciated
-
-Good reading
+This file has been created automatically by GitHub Publish plugin. Quartz expects a 'index.md' at the top level to render the home page of your site, feel free to edit the title and write your content!
