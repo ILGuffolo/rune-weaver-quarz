@@ -1,5 +1,11 @@
 ---
 title: Rune Weaver
 ---
+Welcome to my novel
 
-This file has been created automatically by GitHub Publish plugin. Quartz expects a 'index.md' at the top level to render the home page of your site, feel free to edit the title and write your content!
+thank you for taking the time to read it, it is still very Work In Progress and this site will automatically update with the new chapters and edits to existing ones.
+feel free to give me any feedback on this.
+
+I recommend starting with the intro chapter as the story starts there.
+
+Good Reading!
